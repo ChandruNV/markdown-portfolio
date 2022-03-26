@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+you can see my linkedin account (https://www.linkedin.com/in/chandru-nv-827439228)
